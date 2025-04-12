@@ -11,6 +11,9 @@
 <p align="center">tonetags appreciated</p align="center">
 <p align="center">aroacespec, uncomfy w/ most ships / proship DNI. </p align="center">
 <p align="center">multifandom - dead by daylight, slenderverse, etc.</p align="center">
-<p align="center">kind of an asshole, will ignore unless u say smth + dni if i have dni in my name[obvi]</p align="center">
+<p align="center">dont just sit and stare, i will ignore unless u say smth. also dni if i have dni in my name[obvi]</p align="center">
+<p align="center">i can get rlly defensive so iwc because i bite or whtevr,,,</p align="center">
+
+
 
 <p align="center"> i <3 my friends ^^ /p</p align="center">
