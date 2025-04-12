@@ -1,16 +1,16 @@
-## Hi there 👋
+<p align="center">" Please don't make any sudden moves,
+ㅤYou don't know the half of the abuse. "</p align="center">
+<p align="center">alex / nickname[s]  —  he/it/any . </p align="center">
 
-<!--
-**freddiemercuryisafterme/freddiemercuryisafterme** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![image](https://files.catbox.moe/o07vuy.png)
+
+
+<p align="center">probably neurodivergent .. minor</p align="center">
+<p align="center">tonetags appreciated</p align="center">
+<p align="center">aroacespec, uncomfy w/ most ships / proship DNI. </p align="center">
+<p align="center">multifandom - dead by daylight, slenderverse, etc.</p align="center">
+<p align="center">kind of an asshole, will ignore unless u say smth + dni if i have dni in my name[obvi]</p align="center">
+
+<p align="center"> i <3 my friends ^^ /p</p align="center">
