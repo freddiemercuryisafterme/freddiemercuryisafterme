@@ -1,6 +1,6 @@
 <p align="center">" I look at you and suddenly i start to puke
 ㅤyou're everywhere, seeping into everything . "</p align="center">
-<p align="center">alex / nickname[s]  —  he/it/any . ohand i am a minor </p align="center">
+<p align="center">alex / nickname[s]  —  he/it/any[trying out ze/zir!?] . ohand i am a minor </p align="center">
 
 
 
