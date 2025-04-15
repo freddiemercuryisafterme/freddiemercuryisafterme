@@ -4,7 +4,7 @@
 
 
 
-![image](https://files.catbox.moe/o9pkps.png)
+![image](https://files.catbox.moe/4vgjic.png)
 
 
 <p align="center">probably neurodivergent ,, i can get overstimulated prettayy easiliyyy around new people</p align="center">
