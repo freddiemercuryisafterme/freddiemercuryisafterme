@@ -2,3 +2,4 @@
 ㅤyou're everywhere, seeping into everything . "</p align="center">
 
 ![image](https://files.catbox.moe/cwhp5f.jpg)
+read my strawpage pls i worked very hard on it and it would make me very happy
