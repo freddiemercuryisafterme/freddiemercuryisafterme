@@ -3,8 +3,8 @@
 
 ![image](https://files.catbox.moe/e2fs7g.png)
 
-<p>spam follow is welcomed, idm at all !</p>
-<p>[it actually inflates my ego. follow me now /joke</p>
+<p align="center">spam follow is welcomed, idm at all !</p>
+<p align="center">[it actually inflates my ego. follow me now /joke</p>
 
 
 read my strawpage pls
