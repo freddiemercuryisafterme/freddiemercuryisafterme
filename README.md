@@ -7,4 +7,4 @@
 <p align="center">[it actually inflates my ego. follow me now /joke</p>
 
 
-read my strawpage pls
+<p align="center">read my strawpage pls. also idk anything about phighting i just liked the art ok by</p>
