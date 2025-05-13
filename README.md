@@ -8,3 +8,8 @@
 
 
 <p align="center">read my strawpage pls. also idk anything about phighting i just liked the art ok by</p>
+
+
+
+![alt text](https://files.catbox.moe/zcmfkg.png)
+
