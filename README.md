@@ -11,3 +11,4 @@
 
 
 
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=Profile%20views&color=ce9927&style=flat" alt="freddiemercuryisafterme" /> </p>
