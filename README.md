@@ -10,7 +10,7 @@
 <p align="center">[it actually inflates my ego. follow me now /joke</p>
 
 
-<p align="center">the only susie deltarune kin real . </p>
+<p align="center">the only susie deltarune kin real she is me . tobias vulpes vulpes drop the new chapters please</p>
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=Profile%20views&color=ce9927&style=flat" alt="freddiemercuryisafterme" /> </p>
 
