@@ -7,7 +7,7 @@
 <p align="center">[it actually inflates my ego. follow me now /joke</p>
 
 
-<p align="center">the only susie deltarune kin real . also ignore how ugly this looks please i;ll cry</p>
+<p align="center">the only susie deltarune kin real . also ignore how ugly this looks please . leave me alone sighs i'm working on it</p>
 
 
 
