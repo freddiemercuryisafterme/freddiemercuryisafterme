@@ -7,7 +7,7 @@
 <p align="center">[it actually inflates my ego. follow me now /joke</p>
 
 
-<p align="center">the only susie deltarune kin real . also ignore how off centred the image is shhut uo im gonna fix it just not now okay bro</p>
+<p align="center">the only susie deltarune kin real . also ignore how ugly this looks please i;ll cry</p>
 
 
 
