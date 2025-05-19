@@ -2,7 +2,7 @@
 
 
 
- <img align="left" width="500" height="580" src="https://files.catbox.moe/5umy6v.png">
+ <img align="left" width="500" height="590" src="https://files.catbox.moe/5umy6v.png">
 
 
 
@@ -19,4 +19,4 @@
 basic criteria, people who don't listen to "dnc"/"dnt"/etc , proshippers , people with the intent of dating me - i am aroace and am taken by my fictional characters i am not sorry for this whatsoever . ANYONE UNDER 13 INTERACT WITH CAUTION
 <h3 align="center">BYI</h3>
 
-i have anger issues, anxiety and. probably more. i am very defensive and may get mean if i do not know you, so please iwc. i will unadd/block you if i don't like you. if you want to talk to me, say something - do not just sit there and stare, i will ignore you. also pls use tonetags i am slow
+i have anger issues, anxiety and. probably more. i am very defensive and may get mean if i do not know you, so please iwc. i will unadd/block you if i don't like you. if you want to int, say something - do not just sit there and stare, i will ignore you. also pls use tonetags i am slow
