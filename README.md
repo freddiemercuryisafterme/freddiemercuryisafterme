@@ -11,3 +11,4 @@
 
 
 <p align="center">" you sound like a richie bitch, yo, FUCK YOU !! "</p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=Profile%20views&color=ff0000&style=flat" alt="freddiemercuryisafterme" /> </p>
