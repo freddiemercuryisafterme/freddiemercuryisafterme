@@ -7,7 +7,7 @@
 <p align="center">⫘⫘⫘</p>
 
 <p align="center"><ins>yume</ins> , minor . strawpage is wip </p> 
-<p align="center">uhu dni proshitters, exclusionists and fucking . weirdos idk🦆 . you know who you are</p>
+<p align="center">uhu dni proshitters, exclusionists, fake claimers and fucking . weirdos idk🦆 . you know who you are</p>
 
 
 <p align="center">" you sound like a richie bitch, yo, FUCK YOU !! "</p>
