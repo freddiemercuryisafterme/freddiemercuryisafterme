@@ -7,8 +7,8 @@
 <p align="center">⫘⫘⫘</p>
 
 <p align="center"><ins>yume</ins> , minor . strawpage is wip </p> 
-<p align="center">uhu dni proshitters, exclusionists, fake claimers and fucking . weirdos idk🦆 . you know who you are,, crypto bros stop following me what the fuck</p>
-
+<p align="center">uhu dni proshitters, exclusionists, fake claimers and fucking . weirdos idk🦆 . you know who you are,,</p>
+<p align="center">free 2 spam follow unless ur. not from ponytown and are a grown ass adult</p>
 
 <p align="center">" you sound like a richie bitch, yo, FUCK YOU !! "</p>
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=Profile%20views&color=ff0000&style=flat" alt="freddiemercuryisafterme" /> </p>
