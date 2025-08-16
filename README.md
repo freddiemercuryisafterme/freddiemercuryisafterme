@@ -1,11 +1,10 @@
 
 
 
-
+vv me rn vv
  <p align="center">
-<img src="https://github.com/user-attachments/assets/01b9d555-4a5d-4954-adb4-6f6d8404b35e"width="500" height="500">
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/bff46a74-054a-4796-bd9e-27aeab96c39f" />
 </h4>
-
 
 <p align="center">⫘⫘⫘</p>
 
