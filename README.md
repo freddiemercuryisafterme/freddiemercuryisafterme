@@ -1,7 +1,8 @@
 
 
 
-vv me rn vv
+ <p align="center">vv me rn vv</p>
+ <p align="center">[i dont play regretevator]</p>
  <p align="center">
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/bff46a74-054a-4796-bd9e-27aeab96c39f" />
 </h4>
