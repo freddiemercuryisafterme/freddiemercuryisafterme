@@ -2,8 +2,10 @@
  <p align="center">vv me rn vv</p>
  <p align="center">[i dont play regretevator]</p>
  <p align="center">
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/bff46a74-054a-4796-bd9e-27aeab96c39f" />
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/480d9cb2-c0f2-4b48-b688-0e9f0356ad42" />
 </h4>
+
+
 
 <p align="center">⫘⫘⫘</p>
 
