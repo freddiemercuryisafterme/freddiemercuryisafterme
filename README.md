@@ -3,7 +3,7 @@
  <p align="center">
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/480d9cb2-c0f2-4b48-b688-0e9f0356ad42" />
 </h4>
- <sub><sup>i dont play regretevator</sup></sub>
+ <p align="center"><sub><sup>i dont play regretevator</sup></sub></p>
 
 
 <p align="center">⫘⫘⫘</p>
