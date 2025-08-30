@@ -10,7 +10,7 @@
 
 <p align="center">yume . <ins>fictionflickr / fictionleech</ins> . minor !!!!!</p> 
 <p align="center">dni proshit,, wincest, tcoaall fans, exclusionists and fake claimers.</p>
-<p align="center">ASK TO CUDDLE , please !!!
+<p align="center">ASK BEFORE CUDDLING , please !!!
 <sub><sup>i know it's just a game, i do not care it is uncomfortable</sup></sub>
 <p align="center">free 2 spam follow unless ur. not from ponytown !!!!</p>
 
