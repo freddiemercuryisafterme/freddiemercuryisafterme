@@ -23,7 +23,7 @@
 <p align="left">
   <ins><b><em>dni</em></b></ins> basic crit,, proshit[esp wincest], tcoaall fans, vivsiepop supporters
 
- under 13, exclusionists, fake claimers, anti[?]f/os / antikin
+ under 13, exclusionists, fake claimers, anti[?]yume / antikin
  
  idc about f/o sharing or doubles just b chill
 
