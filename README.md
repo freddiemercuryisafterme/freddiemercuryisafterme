@@ -1,15 +1,14 @@
 
- <p align="center">vv me rn !!! vv</p>
+ <p align="center">vv me btw vv</p>
  <p align="center">
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/480d9cb2-c0f2-4b48-b688-0e9f0356ad42" />
+<img width="500" height="500" alt="image" src="https://i.pinimg.com/736x/b9/fa/21/b9fa21a444540d4b505c8cb441303e5f.jpg" />
 </h4>
- <p align="center"><sub><sup>i dont play regretevator</sup></sub></p>
 
 
 <p align="center">⫘⫘⫘</p>
 
 <p align="center">yume . <ins>fictionflickr / fictionleech</ins> . minor !!!!!</p> 
-<p align="center">dni proshit,, wincest, tcoaall fans, exclusionists and fake claimers.</p>
+<p align="center">dni pro/darkshit,, wincest, tcoaall fans, exclusionists and fake claimers.</p>
 <p align="center">ASK BEFORE CUDDLING , please !!!
 <sub><sup>i know it's just a game, i do not care it is uncomfortable</sup></sub>
 <p align="center">free 2 spam follow unless ur. not from ponytown !!!!</p>
