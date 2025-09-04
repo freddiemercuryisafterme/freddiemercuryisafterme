@@ -40,7 +40,7 @@ i'll probably just block if i dont like youuuuu !!!!!11
 
 
    <!-- BYI -->
-<p align="right"><ins><b><em>byi</em></b></ins> im a yumeshipper !11 also <a href="https://otherkin.fandom.com/wiki/Fictionflicker">fictionflicker</a>/<a href="https://otherkin.fandom.com/wiki/Fictionleech">fictionleech</a> uhh
+<p align="right"><ins><b><em>byi</em></b></ins> im a yumeshipper with 50 billion wives !11 also <a href="https://otherkin.fandom.com/wiki/Fictionflicker">fictionflicker</a>/<a href="https://otherkin.fandom.com/wiki/Fictionleech">fictionleech</a> uhh
  <p align="right">iiuumm lik emmotionallyy unstable + have identity issues AHHJAHG</p>
  <p align="right">
  also like. have bpd traits, mood swings and a lot more,, so iwc please ,,,</p>
