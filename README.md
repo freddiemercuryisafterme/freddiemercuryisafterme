@@ -33,11 +33,12 @@ i'll probably just block if i dont like youuuuu !!!!!11
 
 <p align="right"><ins><b><em>byi</em></b></ins> im a yumeshipper !11 also <a href="https://otherkin.fandom.com/wiki/Fictionflicker">fictionflicker</a>/<a href="https://otherkin.fandom.com/wiki/Fictionleech">fictionleech</a> uhh
  
- <p align="right">iiuumm lik extrrenemly unstable + have identity issues AHHJAHG</p>
+ <p align="right">iiuumm lik emmotionallyy unstable + have identity issues AHHJAHG</p>
  <p align="right">
- also just bpd traits, mood swings and a lot more iwc please ,,,</p>
+ also like. have bpd traits, mood swings and a lot more,, so iwc please ,,,</p>
    <p align="right">
-anndd i can get irrationally angry very easily LMFAO. 
+i can get irrationally angry very easily LMFAO. 
+    
 </p>
 <p align="right">
 ask before. cuddling please. 'its just a game' i dont FUCKING CARREEE</p>
