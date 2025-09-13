@@ -5,7 +5,7 @@
 
    <!-- IMAGES -->
    <p align="center">
-<img width="500" height="500" alt="image" src="https://files.catbox.moe/xi9b7l.png" />
+<img width="500" height="500" alt="image" src="https://files.catbox.moe/vxmhzr.jpg" />
 </h4>
 <p>ㅤ
 </p>
@@ -19,8 +19,8 @@
 </p>
 <p align="center">
 <img width="100" height="100" alt="image" src="https://64.media.tumblr.com/5d948f9609f7952c0e9d9f2da0df8db6/3d1e741ab65cd680-32/s640x960/b0f27ae421a42de0014420660c3af6473c0550d5.gifv" />
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/c26ceba0dcc985d96866455c2bdd7a6d/b49f773f2c6a8400-e6/s250x400/9cd628e82d5cbf309631c567f76545eb5a431d2a.gifv" />
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/f390554acd5f025524066de97ed91cad/bcf665ad725f044c-39/s400x600/59f9ce227b9805f5c97661e98eb2de8c6c44ac25.gifv" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/7aad8408a7c9922f8f769a0f785d8f23/9ed64f0a333e0dfa-e3/s2048x3072/8dc88344d4bbd8d03f300cf10bbbfc8c03225bb3.pnj" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/ef505468026169635c8d80d38f79f2af/9ed64f0a333e0dfa-d0/s250x400/b2dcb5cdbabe920a22347d0f7440a39f42d03c8b.webp" />
 </p>
    <!-- IMAGES -->
 
