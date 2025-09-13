@@ -10,7 +10,7 @@
 <p>ㅤ
 </p>
    <!-- CLICK COUNTER -->
- <p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=passports%20checked&color=34202f&style=flat" alt="freddiemercuryisafterme" /> </p>
+ <p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=passports%20checked&color=a5a90f&style=flat" alt="freddiemercuryisafterme" /> </p>
    <!-- CLICK COUNTER -->
 
 
