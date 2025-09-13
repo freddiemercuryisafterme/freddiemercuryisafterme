@@ -50,7 +50,7 @@ i can get irrationally angry very easily LMFAO.
 <p align="right">
 ask before. cuddling please. 'its just a game' i dont FUCKING CARREEE</p>
 <p align="right">
-  ^this does not apply to people im close to/my familuy btw. ilyyy hiii
+  ^ts does not apply to people im close to/my familuy btw. ilyyy hiii cudz all uwant^
 </p>
 <p align="right">
  I HATE TIKTOK I FUCKING HATE TIKTOK I HOPE IT GETS BANNED
