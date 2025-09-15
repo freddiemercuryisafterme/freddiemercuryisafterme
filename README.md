@@ -1,5 +1,5 @@
    <!-- LINKS -->
-<p align="center">  <a href="https://140roaches.atabook.org/">ata</a>ㅤㅤ<a href="https://pronouns.cc/@140roaches">prn.scc</a>ㅤㅤ<a href="https://bivalex.straw.page">strawpage</a></p>
+<p align="center">  <a href="">ata</a>ㅤㅤ<a href="https://pronouns.cc/@140roaches">prn.scc</a>ㅤㅤ<a href="">strawpage</a></p>
    <!-- LINKS -->
 
 
@@ -54,6 +54,9 @@ ask before. cuddling please. 'its just a game' i dont FUCKING CARREEE</p>
 </p>
 <p align="right">
  I HATE TIKTOK I FUCKING HATE TIKTOK I HOPE IT GETS BANNED
+</p>
+<p align="right">
+   ata and sp links r under rmk, they dont work
 </p>
 <p align="center">
 <img  width="50" height="50" alt="image" src="https://64.media.tumblr.com/1c421321ab3b8f1ef461c3416ea7aa16/9d5f35b153da30cc-bc/s75x75_c1/ae9778f44f11c18bab34ba6bf75c525bdc014b23.gifv" />
