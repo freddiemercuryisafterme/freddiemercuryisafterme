@@ -5,12 +5,12 @@
 
    <!-- IMAGES -->
    <p align="center">
-<img width="500" height="500" alt="image" src="https://files.catbox.moe/vxmhzr.jpg" />
+<img width="370" height="500" alt="image" src="https://files.catbox.moe/88ngkk.png" />
 </h4>
 <p>ㅤ
 </p>
    <!-- CLICK COUNTER -->
- <p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=passports%20checked&color=85a90f&style=flat" alt="freddiemercuryisafterme" /> </p>
+ <p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=SINNERS&color=000128&style=flat" alt="freddiemercuryisafterme" /> </p>
    <!-- CLICK COUNTER -->
 
 
@@ -19,8 +19,8 @@
 </p>
 <p align="center">
 <img width="100" height="100" alt="image" src="https://64.media.tumblr.com/5d948f9609f7952c0e9d9f2da0df8db6/3d1e741ab65cd680-32/s640x960/b0f27ae421a42de0014420660c3af6473c0550d5.gifv" />
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/7aad8408a7c9922f8f769a0f785d8f23/9ed64f0a333e0dfa-e3/s2048x3072/8dc88344d4bbd8d03f300cf10bbbfc8c03225bb3.pnj" />
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/ef505468026169635c8d80d38f79f2af/9ed64f0a333e0dfa-d0/s250x400/b2dcb5cdbabe920a22347d0f7440a39f42d03c8b.webp" />
+<img width="100" height="100" alt="image" src="https://i.pinimg.com/736x/2c/fe/a7/2cfea7991814ca61e9a5bdfc9a9cba9c.jpg" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/a436d763f1128cc80ab5b3bdc1132b2b/661d63ca939ae080-60/s250x400/a38bd623e89083baa6339a3bac545104f5ee7afd.gifv" />
 </p>
    <!-- IMAGES -->
 
