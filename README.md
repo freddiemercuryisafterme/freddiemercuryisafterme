@@ -10,7 +10,7 @@
 <p>ㅤ
 </p>
    <!-- CLICK COUNTER -->
- <p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=SINNERS&color=000128&style=flat" alt="freddiemercuryisafterme" /> </p>
+ <p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=SOLDIERS&color=ff2a00&style=flat" alt="freddiemercuryisafterme" /> </p>
    <!-- CLICK COUNTER -->
 
 
@@ -53,7 +53,7 @@ ask before. cuddling please. 'its just a game' i dont FUCKING CARREEE</p>
   ^doesnt apply to people im close to or familuy btw. ilyyy hiii cudz all uwant
 </p>
 <p align="right">
- I HATE TIKTOK I FUCKING HATE TIKTOK I HOPE IT GETS BANNED
+ i dont support tord or my kin's actions. i am not a commie ok? ok
 </p>
 <p align="right">
    ata and sp links r under rmk, they dont work
