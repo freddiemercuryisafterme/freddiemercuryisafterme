@@ -19,8 +19,8 @@
 </p>
 <p align="center">
 <img width="100" height="100" alt="image" src="https://64.media.tumblr.com/5d948f9609f7952c0e9d9f2da0df8db6/3d1e741ab65cd680-32/s640x960/b0f27ae421a42de0014420660c3af6473c0550d5.gifv" />
-<img width="100" height="100" alt="image" src="https://i.pinimg.com/736x/2c/fe/a7/2cfea7991814ca61e9a5bdfc9a9cba9c.jpg" />
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/a436d763f1128cc80ab5b3bdc1132b2b/661d63ca939ae080-60/s250x400/a38bd623e89083baa6339a3bac545104f5ee7afd.gifv" />
+<img width="100" height="100" alt="image" src="https://i.pinimg.com/736x/d0/12/44/d012442532c7f9cd5f1b86496ef42d10.jpg" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/981214b290e2e22b0e982e8af0f7749a/faf5c2851388d608-ef/s100x200/914446f20a033c238c6719861e29304a569a4761.gifv" />
 </p>
    <!-- IMAGES -->
 
