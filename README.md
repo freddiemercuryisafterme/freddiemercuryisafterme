@@ -5,7 +5,7 @@
 
    <!-- IMAGES -->
    <p align="center">
-<img width="370" height="500" alt="image" src="https://files.catbox.moe/nphlha.png" />
+<img width="370" height="500" alt="image" src="https://files.catbox.moe/ddr5lv.png" />
 </h4>
 <p>ㅤ
 </p>
@@ -19,7 +19,7 @@
 </p>
 <p align="center">
 <img width="100" height="100" alt="image" src="https://64.media.tumblr.com/5d948f9609f7952c0e9d9f2da0df8db6/3d1e741ab65cd680-32/s640x960/b0f27ae421a42de0014420660c3af6473c0550d5.gifv" />
-<img width="100" height="100" alt="image" src="https://i.pinimg.com/736x/d0/12/44/d012442532c7f9cd5f1b86496ef42d10.jpg" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/8ab130d407078ada9a7bfb42adf2a3ac/a97b5c99ff463d20-58/s640x960/e9c9f46dfb33ff6ac766cecf9018c22048efdfbc.jpg" />
 <img width="100" height="100" alt="image" src="https://64.media.tumblr.com/981214b290e2e22b0e982e8af0f7749a/faf5c2851388d608-ef/s100x200/914446f20a033c238c6719861e29304a569a4761.gifv" />
 </p>
    <!-- IMAGES -->
