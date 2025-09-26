@@ -5,7 +5,7 @@
 
    <!-- IMAGES -->
    <p align="center">
-<img width="370" height="500" alt="image" src="https://files.catbox.moe/88ngkk.png" />
+<img width="370" height="500" alt="image" src="https://files.catbox.moe/nphlha.png" />
 </h4>
 <p>ㅤ
 </p>
