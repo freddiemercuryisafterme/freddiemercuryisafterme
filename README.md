@@ -53,7 +53,7 @@ ask before. cuddling please. 'its just a game' i dont FUCKING CARREEE</p>
   ^doesnt apply to people im close to or familuy btw. ilyyy hiii cudz all uwant
 </p>
 <p align="right">
- i dont support tord or my kin's actions. i am not a commie ok? ok
+ i dont support tord or my other kin's actions. i am not a commie ok? ok
 </p>
 <p align="right">
    ata and sp links r under rmk, they dont work
