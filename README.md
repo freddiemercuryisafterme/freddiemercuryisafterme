@@ -3,10 +3,11 @@
    <!-- CLICK COUNTER -->
  <p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=^_^&color=cc004b&style=flat" alt="freddiemercuryisafterme" /> </p>
    <!-- CLICK COUNTER -->
+   
    <!-- IMAGES -->
    <p align="center">
-<img width="370" height="500" alt="image" src="https://github.com/user-attachments/assets/6c848ebe-9ea5-498b-acce-fcd0ec4b178e" />
-" />
+<img width="370" height="500" alt="image" src="https://github.com/user-attachments/assets/6c848ebe-9ea5-498b-acce-fcd0ec4b178e" /></p>
+<p align="center"><sub>ac : @ghuoulish on pinterest</sub></p>
 
 
    <!-- LINKS -->
