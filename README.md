@@ -35,6 +35,8 @@
 <br> under 13, exclusionists, fake claimers, antiselfship & antikin
 <br> idc about f/o sharing or doubles just b chill
 <br> i'll probably just block if i dont like youuuuu !!!!!11
+<br> DO NOT fucking traumadump on me if i dont know you
+<br> also im aroace . no i dont want to be your boyfriend
 </p>
    <!-- DNI -->
 
