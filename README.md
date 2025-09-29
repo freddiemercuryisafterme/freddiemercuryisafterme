@@ -31,8 +31,8 @@
    <!-- DNI -->
    <br>
 <p align="left">
-  <ins><b><em>dni</em></b></ins> basic crit,, proshit[esp wincest], tcoaall fans, vivsiepop supporters
-<br> under 13, exclusionists, fake claimers, anti[?]yume / antikin
+  <ins><b><em>dni</em></b></ins> basic crit,, proshit, tcoaall fans, vivsiepop supporters
+<br> under 13, exclusionists, fake claimers, antiselfship & antikin
 <br> idc about f/o sharing or doubles just b chill
 <br> i'll probably just block if i dont like youuuuu !!!!!11
 </p>
@@ -40,14 +40,13 @@
 
 
    <!-- BYI -->
-<p align="right"><ins><b><em>byi</em></b></ins> im a yumeshipper with 50 billion wives !11 also <a href="https://otherkin.fandom.com/wiki/Fictionflicker">fictionflicker</a>/<a href="https://otherkin.fandom.com/wiki/Fictionleech">fictionleech</a> 
-<br> uhhiiuumm lik emmotionallyy unstable + have identity issues AHHJAHG
-<br> also like. have bpd traits, mood swings and a lot more,, so iwc please ,,,
-<br> i can get irrationally angry very easily LMFAO. 
-<br> ask before. cuddling please. 'its just a game' i dont FUCKING CARREEE
-<br> ^doesnt apply to people im close to or familuy btw. ilyyy hiii cudz all uwant
-<br> i dont support tord or my <a href="https://pronouns.cc/@140roaches/kin%20list">other kin's</a> actions. i am not a commie ok? ok
-<br> ata and sp links r under rmk, they dont work
+<p align="right"><ins><b><em>byi</em></b></ins> im a sharing yume !11 & <a href="https://otherkin.fandom.com/wiki/Fictionflicker">fictionflicker</a>/<a href="https://otherkin.fandom.com/wiki/Fictionleech">fictionleech</a> . . . 
+<br> uhhiiuumm lik emmotionallyy unstable + have identity issues
+<br> bpd+avpd traits, mood swings and a lot more
+<br> i can get irrationally angry very easily so please iwc 
+<br> sorry if i dont int !! i have trouble keeping up w/ relationships
+<br> and i rarely int first . its not u its me . ok? ok
+<br> might go quiet, esp in a group. more of a listener than a yapper really
 </p>
 <p align="center">
 <img  width="50" height="50" alt="image" src="https://64.media.tumblr.com/1c421321ab3b8f1ef461c3416ea7aa16/9d5f35b153da30cc-bc/s75x75_c1/ae9778f44f11c18bab34ba6bf75c525bdc014b23.gifv" />
