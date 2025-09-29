@@ -12,7 +12,7 @@
 <p align="center">  <a href="">ata</a>ㅤㅤ<a href="https://pronouns.cc/@140roaches">prn.scc</a>ㅤㅤ<a href="">strawpage</a></p>
    <!-- LINKS -->
 
-   <p align="center">iw<ins>caution</ins> , ASK to c + h  . mean & disordered dyke . . .</p>
+   <p align="center">iw<ins>caution</ins> , ASK to cuddle, dncover  . mean & disordered dyke . . .</p>
 
    <!-- IMAGES -->
 <br>
