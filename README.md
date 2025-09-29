@@ -6,8 +6,8 @@
    <!-- IMAGES -->
    <p align="center">
 <img width="370" height="500" alt="image" src="https://files.catbox.moe/ddr5lv.png" />
-</h4>
-<b>
+
+
    <!-- LINKS -->
 <p align="center">  <a href="">ata</a>ㅤㅤ<a href="https://pronouns.cc/@140roaches">prn.scc</a>ㅤㅤ<a href="">strawpage</a></p>
    <!-- LINKS -->
