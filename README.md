@@ -1,7 +1,7 @@
 
 
    <!-- CLICK COUNTER -->
- <p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=^_^&color=cc004b&style=flat" alt="freddiemercuryisafterme" /> </p>
+ <p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=^_^&color=cc3800&style=flat" alt="freddiemercuryisafterme" /> </p>
    <!-- CLICK COUNTER -->
    
    <!-- IMAGES -->
@@ -15,7 +15,7 @@
    <!-- LINKS -->
 
    <p align="center">
-      ${\textsf{\color{#ad3360} iwcaution , ASK to cuddle, dncover  . mean + disordered dyke . . .}}$
+      ${\textsf{\color{#d84f1b} iwcaution , ASK to cuddle, dncover  . mean + disordered dyke . . .}}$
    <br>
   
 
