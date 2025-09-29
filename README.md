@@ -6,7 +6,7 @@
    
    <!-- IMAGES -->
    <p align="center">
-<img width="370" height="500" alt="image" src="https://github.com/user-attachments/assets/6c848ebe-9ea5-498b-acce-fcd0ec4b178e" /></p>
+<img width="370" height="500" alt="image" src="https://github.com/user-attachments/assets/05d3b087-1e13-4514-8253-83f87a9f089e"/></p>
 <p align="center"><sub>ac : @ghuoulish on pinterest</sub></p>
 
 
