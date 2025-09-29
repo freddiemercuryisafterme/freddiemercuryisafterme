@@ -1,12 +1,12 @@
 
 
    <!-- CLICK COUNTER -->
- <p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=^_^&color=cc3800&style=flat" alt="freddiemercuryisafterme" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=^_^&color=cc004b&style=flat" alt="freddiemercuryisafterme" /> </p>
    <!-- CLICK COUNTER -->
    
    <!-- IMAGES -->
    <p align="center">
-<img width="370" height="500" alt="image" src="https://github.com/user-attachments/assets/05d3b087-1e13-4514-8253-83f87a9f089e"/></p>
+<img width="370" height="500" alt="image" src="https://files.catbox.moe/ueheil.png"/></p>
 <p align="center"><sub>ac : @ghuoulish on pinterest</sub></p>
 
 
@@ -15,7 +15,7 @@
    <!-- LINKS -->
 
    <p align="center">
-      ${\textsf{\color{#d84f1b} iwcaution , ASK to cuddle, dncover  . mean + disordered dyke . . .}}$
+      ${\textsf{\color{#ad3360} iwcaution , ASK to cuddle, dncover  . mean + disordered dyke . . .}}$
    <br>
   
 
