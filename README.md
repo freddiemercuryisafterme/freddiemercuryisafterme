@@ -1,18 +1,18 @@
-   <!-- LINKS -->
-<p align="center">  <a href="">ata</a>ㅤㅤ<a href="https://pronouns.cc/@140roaches">prn.scc</a>ㅤㅤ<a href="">strawpage</a></p>
-   <!-- LINKS -->
 
 
+   <!-- CLICK COUNTER -->
+ <p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=SOLDIERS&color=ff2a00&style=flat" alt="freddiemercuryisafterme" /> </p>
+   <!-- CLICK COUNTER -->
    <!-- IMAGES -->
    <p align="center">
 <img width="370" height="500" alt="image" src="https://files.catbox.moe/ddr5lv.png" />
 </h4>
-<p>ㅤ
-</p>
-   <!-- CLICK COUNTER -->
- <p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=SOLDIERS&color=ff2a00&style=flat" alt="freddiemercuryisafterme" /> </p>
-   <!-- CLICK COUNTER -->
+<b>
+   <!-- LINKS -->
+<p align="center">  <a href="">ata</a>ㅤㅤ<a href="https://pronouns.cc/@140roaches">prn.scc</a>ㅤㅤ<a href="">strawpage</a></p>
+   <!-- LINKS -->
 
+   <p align="center">iw<ins>caution</ins> , ASK to c + h  . mean & disordered dyke . . .</p>
 
    <!-- IMAGES -->
 <br>
