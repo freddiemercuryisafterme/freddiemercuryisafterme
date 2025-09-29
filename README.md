@@ -1,7 +1,7 @@
 
 
    <!-- CLICK COUNTER -->
- <p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=SOLDIERS&color=ff2a00&style=flat" alt="freddiemercuryisafterme" /> </p>
+ <p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=^_^&color=cc004b&style=flat" alt="freddiemercuryisafterme" /> </p>
    <!-- CLICK COUNTER -->
    <!-- IMAGES -->
    <p align="center">
@@ -13,7 +13,10 @@
 <p align="center">  <a href="">ata</a>ㅤㅤ<a href="https://pronouns.cc/@140roaches">prn.scc</a>ㅤㅤ<a href="">strawpage</a></p>
    <!-- LINKS -->
 
-   <p align="center">iw<ins>caution</ins> , ASK to cuddle, dncover  . mean & disordered dyke . . .</p>
+   <p align="center">
+      ${\textsf{\color{#ad3360} iwcaution , ASK to cuddle, dncover  . mean + disordered dyke . . .}}$
+   <br>
+  
 
    <!-- IMAGES -->
 <br>
