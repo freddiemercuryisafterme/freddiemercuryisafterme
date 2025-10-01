@@ -11,7 +11,7 @@
 
 
    <!-- LINKS -->
-<p align="center">  <a href="">ata</a>ㅤㅤ<a href="https://pronouns.cc/@140roaches">prn.scc</a>ㅤㅤ<a href="">strawpage</a></p>
+<p align="center">  <a href="https://140roaches.atabook.org/">ata</a>ㅤㅤ<a href="https://pronouns.cc/@140roaches">prn.scc</a>ㅤㅤ<a href="">strawpage</a></p>
    <!-- LINKS -->
 
    <p align="center">
