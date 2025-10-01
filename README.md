@@ -36,12 +36,14 @@
    <!-- DNI -->
    <br>
 <p align="left">
-  <ins><b><em>dni</em></b></ins> basic crit,, proshit, tcoaall fans, vivsiepop supporters
+  <ins><b><em>dni</em></b></ins> basic crit,, proshit, tcoaall fans, vivsiepop supporters, boyfriend to death
+<br> homestuck fans also kind of Scare me so like. uuhh .. . . thin ice?? / dniuid ??
 <br> under 13, exclusionists, fake claimers, antiselfship & antikin
 <br> idc about f/o sharing or doubles just b chill
 <br> i'll probably just block if i dont like youuuuu !!!!!11
 <br> DO NOT fucking traumadump on me if i dont know you
 <br> also im aroace . no i dont want to be your boyfriend
+   
 </p>
    <!-- DNI -->
 
