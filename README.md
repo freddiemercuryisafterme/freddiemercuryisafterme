@@ -1,13 +1,13 @@
 
 
    <!-- CLICK COUNTER -->
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=^_^&color=cc004b&style=flat" alt="freddiemercuryisafterme" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=^_^&color=b12501&style=flat" alt="freddiemercuryisafterme" /> </p>
    <!-- CLICK COUNTER -->
    
    <!-- IMAGES -->
    <p align="center">
-<img width="370" height="500" alt="image" src="https://files.catbox.moe/ueheil.png"/></p>
-<p align="center"><sub>ac : @ghuoulish on pinterest</sub></p>
+<img width="370" height="500" alt="image" src="https://files.catbox.moe/wv5mfb.png"/></p>
+<p align="center"><sub>ac : @altnog on tumblr</sub></p>
 
 
    <!-- LINKS -->
@@ -15,16 +15,16 @@
    <!-- LINKS -->
 
    <p align="center">
-      ${\textsf{\color{#ad3360} iwcaution , ASK to cuddle, dncover  . mean + disordered dyke . . .}}$
+      ${\textsf{\color{#cf2800} iwcaution , ASK to cuddle, dncover  . mean + disordered dyke . . .}}$
    <br>
   
 
    <!-- IMAGES -->
 <br>
 <p align="center">
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/5d948f9609f7952c0e9d9f2da0df8db6/3d1e741ab65cd680-32/s640x960/b0f27ae421a42de0014420660c3af6473c0550d5.gifv" />
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/bd78e465d845eaf9dc85e5147107d367/3bebae850cb83544-02/s250x400/c703ff4daa6337c4a18bfa41aa0f2d158199aafc.jpg" />
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/a6a264f75d365f26263d006b86f559bc/c52a73c5e92cb4ae-db/s250x400/904fc0fee199237151739115a3b3339302dd827f.gifv" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/12a61e135d6be81e33880ec8b3ca75dd/96907bd72d06fe51-f5/s400x600/6db5b3361f8010d59e59ede9dc02038bde5c5f3e.webp" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/b7eefcac4fc7ce1e19f1280a34a5d5b9/ac679323905a1d4f-38/s1280x1920/191602a0dd19dd277e44b44e86799056af4aa05b.jpg" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/72230a5126603611d737df92f89dc8f0/91c310b8fd70e73b-d0/s250x400/58d8cee0ce4fc1049923f01b3c5745bada262f47.gifv" />
 </p>
    <!-- IMAGES -->
    <div align="center">
