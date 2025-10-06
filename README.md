@@ -36,7 +36,7 @@
    <!-- DNI -->
    <br>
 <p align="left">
-  <ins><b><em>dni</em></b></ins> basic crit,, proshit, tcoaall fans, vivsiepop supporters, boyfriend to death
+  <ins><b><em>dni</em></b></ins> basic crit,, proshit, tcoaall fans, vivsiepop supporters, boyfriend to death, ybc
 <br> country human fans ,, homestuck fans also kind of Scare me so like. uuhh thin ice??
 <br> under 13, exclusionists, fake claimers, antiselfship & antikin
 <br> idc about f/o sharing or doubles just b chill
