@@ -57,6 +57,7 @@
 <br> and i rarely int first . its not u its me . ok? ok
 <br> might be quiet/dry, esp in a group. but im not doing it on purpose !!
 <br>  more of a listener than a yapper really
+<br> i have had a mad dbd hyperfixation for years dbd fans int i will start shakign
 </p>
 <p align="center">
 <img  width="50" height="50" alt="image" src="https://64.media.tumblr.com/1c421321ab3b8f1ef461c3416ea7aa16/9d5f35b153da30cc-bc/s75x75_c1/ae9778f44f11c18bab34ba6bf75c525bdc014b23.gifv" />
