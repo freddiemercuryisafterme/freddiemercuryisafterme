@@ -1,32 +1,24 @@
 
 
    <!-- CLICK COUNTER -->
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=^_^&color=b12501&style=flat" alt="freddiemercuryisafterme" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=CONTRACTS+SIGNED&color=570455&style=flat" alt="freddiemercuryisafterme" /> </p>
    <!-- CLICK COUNTER -->
    
    <!-- IMAGES -->
    <p align="center">
-<img width="370" height="500" alt="image" src="https://files.catbox.moe/wv5mfb.png"/></p>
-<p align="center"><sub>ac : @altnog on tumblr</sub></p>
+<img width="370" height="500" alt="image" src="https://files.catbox.moe/jitk11.png"/></p>
 
 
    <!-- LINKS -->
-<p align="center">  <a href="https://140roaches.atabook.org/">ata</a>ㅤㅤ<a href="https://pronouns.cc/@140roaches">prn.scc</a>ㅤㅤ<a href="">strawpage</a></p>
+<p align="center">  <a href="https://140roaches.atabook.org/">ata</a>ㅤㅤ<a href="https://pronouns.cc/@140roaches">prn.scc</a></p>
    <!-- LINKS -->
 
    <p align="center">
-      ${\textsf{\color{#cf2800} iwcaution , ASK to cuddle, dncover  . mean + disordered dyke . . .}}$
+      ${\textsf{\color{#6f076c} iwcaution , ASK to cuddle, dncover . . .}}$
    <br>
-  
 
-   <!-- IMAGES -->
-<br>
-<p align="center">
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/12a61e135d6be81e33880ec8b3ca75dd/96907bd72d06fe51-f5/s400x600/6db5b3361f8010d59e59ede9dc02038bde5c5f3e.webp" />
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/b7eefcac4fc7ce1e19f1280a34a5d5b9/ac679323905a1d4f-38/s1280x1920/191602a0dd19dd277e44b44e86799056af4aa05b.jpg" />
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/72230a5126603611d737df92f89dc8f0/91c310b8fd70e73b-d0/s250x400/58d8cee0ce4fc1049923f01b3c5745bada262f47.gifv" />
-</p>
-   <!-- IMAGES -->
+
+   
    <div align="center">
 <details>
 
@@ -57,8 +49,14 @@
 <br> i have A LOT of trouble keeping up w/ relationships. even when i like you
 <br>might go quiet, especially in groups. more of a listener than a yapper
 </p>
+      <!-- IMAGES -->
+<br>
 <p align="center">
-<img  width="50" height="50" alt="image" src="https://64.media.tumblr.com/1c421321ab3b8f1ef461c3416ea7aa16/9d5f35b153da30cc-bc/s75x75_c1/ae9778f44f11c18bab34ba6bf75c525bdc014b23.gifv" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/fc8c15420763007ee84bea7c05e0c5c7/99d964e634463dfb-9b/s640x960/756c091f66683f6fb79669846e6c7203be810b28.pnj" />
+<img width="100" height="100" alt="image" src="https://files.catbox.moe/c559y4.webp" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/8dbef8fa7f9d44de84d3d9cc8c2481a7/2a8038228d5aa439-94/s250x400/2ffffdb67b4c8031aaf0c51045fdfcba9856edb5.webp" />
 </p>
+   <!-- IMAGES -->
+
 <!-- BYI -->
 </details>
