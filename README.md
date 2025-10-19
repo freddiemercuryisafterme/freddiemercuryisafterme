@@ -45,7 +45,6 @@
 <br> uhhiiuumm lik emmotionallyy unstable + have identity issues
 <br> bpd+avpd traits, mood swings and a lot more
 <br> i can get irrationally angry very easily so please iwc 
-<br> i can be <b>VERY. AVOIDANT.</b> to the point of ignoring people.
 <br> i have A LOT of trouble keeping up w/ relationships. even when i like you
 <br>might go quiet, especially in groups. more of a listener than a yapper
 </p>
