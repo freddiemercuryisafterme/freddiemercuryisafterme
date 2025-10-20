@@ -14,7 +14,7 @@
    <!-- LINKS -->
 
    <p align="center">
-      ${\textsf{\color{#07298c} iwcaution , ASK to cuddle, dncover . . .}}$
+      ${\textsf{\color{#07298c} iwcaution ,ㅤASKㅤtoㅤcuddle ,ㅤdncover . . .}}$
    <br>
 
 
