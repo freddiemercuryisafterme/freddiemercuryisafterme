@@ -43,7 +43,7 @@
 <!-- THINICE -->
 <p align="right">
   <ins><b><em>thin ice</em></b></ins> homestuck, overly freaky people, under 13
-   <br>most mcsmp and roblox fans unless friends, spam following or i int first
+   <br>most roblox fans unless friends, spam following or i int first
 </p>
 <!-- THINICE -->
 
