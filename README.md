@@ -9,16 +9,16 @@
 <img width="370" height="500" alt="image" src="https://64.media.tumblr.com/4931b9bf2fed4f3387d7a86e6963b0b5/b510dc8dba659810-fb/s500x750/d0b350c47b9a5b6cddea750dcf044f4d562d74dd.gifv"/></p>
 
 
-
+   <!-- LINKS -->
+<p align="center">  <a href="https://140roaches.atabook.org/">ata</a>ㅤㅤ<a href="https://pronouns.cc/@140roaches">about me . . .</a></p>
+   <!-- LINKS -->
 ⠀
    
    <p align="center">
       ${\textsf{\color{#07298c} iwcaution ,ㅤASKㅤtoㅤcuddle ,ㅤdncover . . .}}$
    <br>
 ⠀
-   <!-- LINKS -->
-<p align="center">  <a href="https://140roaches.atabook.org/">ata</a>ㅤㅤ<a href="https://pronouns.cc/@140roaches">about me . . .</a></p>
-   <!-- LINKS -->
+
    ⠀
    <div align="center">
 <details>
