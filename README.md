@@ -42,7 +42,8 @@
 <!-- THINICE -->
 <p align="right">
   <ins><b><em>thin ice</em></b></ins> homestuck, overly freaky people, under 13
-   <br>most mcsmp fans and most roblox fandoms unless we're already friends
+   <br>most mcsmp fans and most roblox fandoms unless friends or i int first
+   <br
 </p>
 <!-- THINICE -->
 
@@ -50,7 +51,7 @@
    <!-- BYI -->
 <p align="left"><ins><b><em>byi</em></b></ins> im a sharing yume !11 & <a href="https://otherkin.fandom.com/wiki/Fictionflicker">fictionflicker</a>/<a href="https://otherkin.fandom.com/wiki/Fictionleech">fictionleech</a> . . . 
 <br> i am very emotionallyy unstable + have identity and anger issues
-<br> bpd+avpd traits, mood swings and a lot more
+<br> my mood may change very quickly, especially if i become triggered
 <br> i can get irrationally upset very easily so please iwcaution always
 <br> i have A LOT of trouble keeping up w/ relationships. even when i like you
 <br>might go quiet, especially in groups. more of a listener than a yapper
