@@ -13,8 +13,7 @@
 ⠀
    
    <p align="center">
-      ${\textsf{\color{#07298c} alex ,ㅤ15}}$
-      <br>${\textsf{\color{#07298c} iwcaution ,ㅤASKㅤ2ㅤcuddle ,ㅤdncover . . .}}$
+      ${\textsf{\color{#07298c} iwcaution ,ㅤASKㅤtoㅤcuddle ,ㅤdncover . . .}}$
    <br>
 ⠀
    <!-- LINKS -->
