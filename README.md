@@ -1,12 +1,12 @@
 
 
    <!-- CLICK COUNTER -->
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=CONTRACTS+SIGNED&color=570455&style=flat" alt="freddiemercuryisafterme" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=CONTRACTS+SIGNED&color=07298c&style=flat" alt="freddiemercuryisafterme" /> </p>
    <!-- CLICK COUNTER -->
    
    <!-- IMAGES -->
    <p align="center">
-<img width="370" height="500" alt="image" src="https://files.catbox.moe/jitk11.png"/></p>
+<img width="370" height="500" alt="image" src="https://64.media.tumblr.com/4931b9bf2fed4f3387d7a86e6963b0b5/b510dc8dba659810-fb/s500x750/d0b350c47b9a5b6cddea750dcf044f4d562d74dd.gifv"/></p>
 
 
    <!-- LINKS -->
@@ -14,7 +14,7 @@
    <!-- LINKS -->
 
    <p align="center">
-      ${\textsf{\color{#6f076c} iwcaution , ASK to cuddle, dncover . . .}}$
+      ${\textsf{\color{#07298c} iwcaution , ASK to cuddle, dncover . . .}}$
    <br>
 
 
