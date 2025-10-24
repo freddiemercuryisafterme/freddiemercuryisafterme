@@ -15,7 +15,7 @@
 ⠀
    
    <p align="center">
-      ${\textsf{\color{#831f05} iwcaution ,ㅤASKㅤtoㅤcuddle ,ㅤdncover . . .}}$
+      iwcaution ,ㅤASKㅤtoㅤcuddle ,ㅤdncover . . .
    <br>
 ⠀
 
