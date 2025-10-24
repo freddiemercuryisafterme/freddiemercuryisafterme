@@ -1,12 +1,12 @@
 
 
    <!-- CLICK COUNTER -->
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=CONTRACTS+SIGNED&color=07298c&style=flat" alt="freddiemercuryisafterme" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=freddiemercuryisafterme&label=visitors&color=831f05&style=flat" alt="freddiemercuryisafterme" /> </p>
    <!-- CLICK COUNTER -->
    
    <!-- IMAGES -->
    <p align="center">
-<img width="370" height="500" alt="image" src="https://64.media.tumblr.com/4931b9bf2fed4f3387d7a86e6963b0b5/b510dc8dba659810-fb/s500x750/d0b350c47b9a5b6cddea750dcf044f4d562d74dd.gifv"/></p>
+<img width="370" height="500" alt="image" src="https://github.com/user-attachments/assets/8d440095-da44-499a-a0ad-fee1c7b0d778" /></p>
 
 
    <!-- LINKS -->
@@ -15,7 +15,7 @@
 ⠀
    
    <p align="center">
-      ${\textsf{\color{#07298c} iwcaution ,ㅤASKㅤtoㅤcuddle ,ㅤdncover . . .}}$
+      ${\textsf{\color{#831f05} iwcaution ,ㅤASKㅤtoㅤcuddle ,ㅤdncover . . .}}$
    <br>
 ⠀
 
@@ -64,9 +64,9 @@
    
 <br>
 <p align="center">
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/d023fff70e9697e4d959ef124faaa53b/7f0fccc718b3c805-1e/s250x400/f94c5f11f8965869c83ebb71329960c142b3e37e.gifv" />
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/562fcc34b4dc349971b96d9bb558fdf6/b510dc8dba659810-44/s500x750/2046ad93d96c9e21914abe0b5c870a1115246ed9.jpg" />
-<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/d023fff70e9697e4d959ef124faaa53b/7f0fccc718b3c805-1e/s250x400/f94c5f11f8965869c83ebb71329960c142b3e37e.gifv" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/86dc9080647c554ff10ce3a937664531/0c5fd159ba912643-a8/s100x200/a06c2a709e3e233ecd09003cfd5f8937ffa5a6f0.gifv" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/b3f7338f7465f9ca2cfcfe7a59bf0461/0c5fd159ba912643-72/s100x200/d4b9f3a001ef621f17a521997f6d64a49b6cf45d.gifv" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/e8540b03cc566deb36fde6004f9df95c/0c5fd159ba912643-7b/s100x200/6101b93f3003e2ab8c88fb5974a70cf7cc037dbe.gifv" />
 </p>
    <!-- IMAGES -->
 
